@@ -1,4 +1,4 @@
-### Hi there, I am [yrPang] 👋
+### Hi there, I am [MiLlion] 👋
 
 I’m a junior student at [Xidian University](https://en.xidian.edu.cn/). I am also a member of XDU Inspur Student Club. 
 
